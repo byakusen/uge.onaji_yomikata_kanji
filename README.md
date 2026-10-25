@@ -1,0 +1,1 @@
+# uge.onaji_yomikata_kanji
